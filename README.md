@@ -1,2 +1,2 @@
 # crearbelleza-GitHub
-Tu belleza - Tu salud by @platzi
+Tu belleza - Tu salud by @zero
